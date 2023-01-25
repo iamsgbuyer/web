@@ -1,1 +1,1 @@
-# for buy property
+# This site is created to help property buyers to source for geninue sellers as there are too much redundant info online. 
